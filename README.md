@@ -1,1 +1,0 @@
-# mediocreriza.github.io
